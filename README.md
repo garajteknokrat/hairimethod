@@ -1,2 +1,0 @@
-# hairimethod
-Sales page #hairimethod
